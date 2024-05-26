@@ -13,7 +13,7 @@ I don't code much outside of work, because going outside is cool 😎. That is, 
 
 I love people, animals, and nature... maybe because they're all the same thing? I guess I'm not that interesting after all.  
 
-Pro-piracy, pro-FOSS, anti-DRM. Decentralized is best.  
+Pro-FOSS, anti-DRM, decentralized is best.  
  
 Just tryna keep this space rock livable 🌎🌍🌏.  
 
